@@ -8,3 +8,5 @@ Téma seminární práce jsem si vybral: Tabulkový procesor s podtitulem vhodn�
 
 
 Dobrý den, téma schvaluji. Hana Vojáčková
+
+Dobrý den, zakládám návrh semestrální práce.
